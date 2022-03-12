@@ -1,1 +1,1 @@
-# lababo
+Ganda ko
